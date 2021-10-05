@@ -2,7 +2,7 @@ Welcome! I am a aspiring computer scientist going to Wentworth Institute of Tech
 
 
 Social:
-       [LinkedIn](https://www.linkedin.com/in/connor0rogers3)
+   [LinkedIn](https://www.linkedin.com/in/connor0rogers3)📗
         
-       [Instagram](https://www.instagram.com/connor.rog)
+   [Instagram](https://www.instagram.com/connor.rog)📷
        
